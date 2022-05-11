@@ -17,7 +17,7 @@ Sve je počelo primitkom nagrade od $5k koju smo podijeliti tadašnji kolega i j
 
 Kada se prototip pokazao kao neadekvatan (što smo sami rekli), odlučili smo prekinuti jer nije bilo smisla. Nažalost, uvijet da će se tvrtka osnovati je bio u ugovoru. Bili smo spremni vratiti nagradu. To nije niti izbliza dovoljno po njihovom. Tada su počele prijetnje da će nam se svi troškovi obračunati (sastanci, izgubljeno vrijeme sa nama), te kako ćemo se iz te situacije teško izvući. Vodeću ulogu u tome je imao Dino Dedić. 
 
-Počeli su razgovori sa odvjetnicima, tadašnji kolega se želio izvući iz toga što prije), te smo na kraju potpisali raskid gdje se "nagrada" vraća u bruto iznosu, uzima se 10% od rješenja, potpisuje je da je sve naša krivica, te šutnja da se ne govori ništa što se događalo kao što se vidi po priloženim dokumentima. Postojala je opcija i sud, no kako je i Dino Dedić tada rekao: "možete nas tužiti, ali mi imamo novac, vi ne".
+Počeli su razgovori sa odvjetnicima, tadašnji kolega se želio izvući iz toga što prije), te smo na kraju potpisali raskid gdje se "nagrada" vraća u bruto iznosu, uzima se 10% od rješenja, potpisuje je da je sve naša krivica, te šutnja da se ne govori ništa što se događalo kao što se vidi po priloženim dokumentima. Postojala je opcija i sud, no kako je i Dino Dedić tada rekao: "mi se možemo tužiti, ali mi imamo novac, vi ne", što je nažalost i bila istina.
 
 ## Završno
 Ako budem imao volje odgovorit ću na upite ovdje (Discussion). Pišem ovo **jer je vrijeme da se sazna, te se postupci takvih ljudi ne trebaju opravdavati**.
