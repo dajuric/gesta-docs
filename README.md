@@ -4,7 +4,7 @@ Ovaj repozitorij je skupina dokumenata (ugovora) koji su se potpisali između [C
 
 Ako koga zanima kako je Hamed Bangoura, Dino Dedić, te Goran Dautović radio sa startupom kojem nije tehnološki POC nije uspio (*prijetnje odvjetnicima, sudovima, tužbama i lažima*), neka slobodno pročita dokumente kao i ovaj readme. 
 
-Da ne budem pristran, bez obzira koliko me to mučilo, mogao sam se drugačije postaviti - bio sam uzbuđen što ću stvoriti nešto novo, imao sam vjere da i druga strana gleda u stom smjeru. Priznajem da nismo osnovali tvrku kako piše u ugovoru jer nije imalo smisla. Da nam je druga strana imalo vjerovala, još bi i danas surađivali barem kao pojedinci, niste nas trebali pokušati pokopati.
+Da ne budem pristran, bez obzira koliko me to mučilo, mogao sam se drugačije postaviti - bio sam uzbuđen što ću stvoriti nešto novo, imao sam vjere da i druga strana gleda u stom smjeru. Priznajem da nismo osnovali tvrku kako piše u ugovoru jer nije imalo smisla. Da nam je druga strana imalo vjerovala - da niste mislili da lažemo - kako ste rekli "samo se želite izvući", još bi i danas surađivali barem kao pojedinci, niste nas trebali pokušati pokopati.
 
 ## Osobe u Core Incubatoru
 [Hamed Bangoura](https://hr.linkedin.com/in/hamed-bangoura-16062625?original_referer=https%3A%2F%2Fwww.google.com%2F)   
